@@ -1,11 +1,11 @@
 ######################################
 # Thank You Allah Swt..              #
-# Thanks My Team : Black Coder Crush #
+# Thanks My Team : Anonymous4ndre4s5 #
 # Thnks You All My Friends me.       #
 # Thanks All Member BCC :            #
-# Leader : M.Daffa                   #
-# CO Founder : Mr.Tr3v!0n            #
-# CO Leader : Akin                   #
+# Leader : R4hu14ndre4s5             #
+# CO Founder : 4ndre4s5              #
+# CO Leader : Rahul                  #
 # CO : Holilul Anwar                 #
 # Zumbailee,Febry, Bima, Accil, Alfa #
 # Ardi Bordir  Raka, Wahyu Andika.   #
